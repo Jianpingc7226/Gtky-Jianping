@@ -1,4 +1,4 @@
-My name is Jianping
+My name is Jing Yuan Wang
 
 I'm 15 years old.
 
